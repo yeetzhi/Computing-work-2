@@ -1,15 +1,4 @@
 
-Scott stuffed Jaysee into the toilet bowl and flushed him down. Jaysee then came out in an underground secret lab that belongs to wei yi.
-The secret lab was made by weiyi and his wife, _____ (insert any 1D boys' name)
-Just at this moment, Wei yi walked in, holding scott by his neck using his muscular hands. 
-The two were then imprisoned in Wei Yi's lab to use as test subjects. Wei Yi then searched up a howtobasic video and got an idea.
-He programmed an egg launcher that fires 200 eggs per minute and aimed it at jaysee.
-But to Wei Yi's dismay, All the eggs bounced off jaysee. However, Scot did not have such defense. He was absolutely destroyed by the rotten eggs.
-But Scott also has his tactics...
-Scott used his ultimate skill and let out a muffled bloodcurdling screech, so powerful that it blinded and deafended Wei Yi for 30 minutes.
-The 2 then escaped and returned to what they call their house.
-They were safe.
-For now...
 
 Once upon a time there was a boy named Jaysee. He found an apple on the floor and took it home to eat. <br>
 
